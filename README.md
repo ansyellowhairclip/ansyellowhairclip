@@ -5,3 +5,5 @@
 <p align="center">
   <img src="https://www.image2url.com/r2/default/images/1780749535244-fe0cb625-3a08-4e5d-a9f4-12c30ecaac44.png" alt="image" width="700" height="260">
 </p>
+
+𝖲𝗈, 𝗇𝖾𝗏𝖾𝗋 𝗅𝖾𝖺𝗋𝗇𝗂𝗇𝗀 𝗆𝗒 𝗅𝖾𝗌𝗌𝗈𝗇, 𝖨 𝖾𝗇𝖽 𝗎𝗉 𝖼𝗅𝗂𝗇𝗀𝗂𝗇𝗀 𝗍𝗈 𝗒𝗈𝗎 𝗈𝗇𝖼𝖾 𝗆𝗈𝗋𝖾.
