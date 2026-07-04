@@ -2,7 +2,7 @@
 ˚₊‧꒰ა ☆ ໒꒱- ‧₊˚✦⋆𓆩✧𓆪⋆✦˚₊‧ -꒰ა ☆ ໒꒱ ‧₊˚
   
 <p align="center">
-  <img src="https://www.image2url.com/r2/default/images/1780749535244-fe0cb625-3a08-4e5d-a9f4-12c30ecaac44.png" alt="image" width="700" height="260">
+  <img src="https://imgur.com/a/yRjxOzX" alt="image" width="700" height="260">
 </p>
 
-𝖲𝗈, 𝗇𝖾𝗏𝖾𝗋 𝗅𝖾𝖺𝗋𝗇𝗂𝗇𝗀 𝗆𝗒 𝗅𝖾𝗌𝗌𝗈𝗇, 𝖨 𝖾𝗇𝖽 𝗎𝗉 𝖼𝗅𝗂𝗇𝗀𝗂𝗇𝗀 𝗍𝗈 𝗒𝗈𝗎 𝗈𝗇𝖼𝖾 𝗆𝗈𝗋𝖾.
+𝘈𝘯𝘥 𝘪𝘧 𝘺𝘰𝘶 𝘥𝘰𝘯'𝘵 𝘸𝘢𝘯𝘵 𝘵𝘰 𝘭𝘰𝘰𝘬 𝘢𝘵 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨, 𝘵𝘩𝘦𝘯 𝘭𝘦𝘵'𝘴 𝘴𝘵𝘢𝘺 𝘭𝘪𝘬𝘦 𝘵𝘩𝘪𝘴 𝘧𝘰𝘳𝘦𝘷𝘦𝘳.
